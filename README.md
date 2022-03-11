@@ -1,0 +1,1 @@
+- 👋öylesine geldim beyler raad
